@@ -1,0 +1,1 @@
+# Aatificial_Intelligence_labPracticals
